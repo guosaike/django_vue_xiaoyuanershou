@@ -11,11 +11,11 @@
 
    ![2、gongneng2](./2、gongneng2.png)
 
-需要代码，联系微信 python_kk
+需要代码，联系微信 python_kk或者qq：976870170（备注github，不备注不通过）
 
-需要代码，联系微信 python_kk
+需要代码，联系微信 python_kk或者qq：976870170（备注github，不备注不通过）
 
-需要代码，联系微信 python_kk
+需要代码，联系微信 python_kk或者qq：976870170（备注github，不备注不通过）
 
 ![img](./200.png)
 
